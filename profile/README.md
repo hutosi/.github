@@ -1,3 +1,3 @@
 <p align="center">
-  <img src="https://c.tenor.com/DuQjcXxX1pMAAAAS/anime-smug-face-smug-anime-girl.gif" width="100%">
+  <img src="https://c.tenor.com/1T1B8HcWalQAAAAC/anime-hug.gif" width="100%">
 </p>
